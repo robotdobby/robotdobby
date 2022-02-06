@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @robotdobby
+- 👀 I’m interested in NFT
+- 🌱 I’m currently learning cryptocurrency world
+- 💞️ I’m looking to collaborate on modern NFT projects
+- 📫 robotdoby@gmail.com
